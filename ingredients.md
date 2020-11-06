@@ -1,0 +1,1 @@
+Ingredients that you will need will be 1 or 1/2 Cup (250ml) of Water, Ching’s Manchurian Instant Noodles, Chopped vegetables, Any vegetables would be fine/carrots, peas, and green beans would give a great taste, Half cup boiled corn
